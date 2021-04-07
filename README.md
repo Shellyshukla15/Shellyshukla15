@@ -1,0 +1,3 @@
+- 👋 Hi, I’my name is shelly shukla
+- 🌱 I’m currently Pursuing BBA 
+- 📫 6397898333
